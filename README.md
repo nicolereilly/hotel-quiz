@@ -1,3 +1,3 @@
 # hotelquiz
 https://10fastfingers.com/typing-test/english
-test 2: 71 
+fastest test : 71 wpm
